@@ -1,6 +1,6 @@
 # Wybot Coupon Code June 2025 (US Site) - 5% or $40 Off
 
-Save 5% or $90 off your entire purchase with the latest **Wybot coupon codes for June 2025**, making pool cleaning effortless and affordable. Whether you’re new to robotic pool cleaners or looking to upgrade to a more powerful model, these verified offers let you save big on top-rated devices.
+Save 5% or $40 off your entire purchase with the latest **Wybot coupon codes for June 2025**, making pool cleaning effortless and affordable. Whether you’re new to robotic pool cleaners or looking to upgrade to a more powerful model, these verified offers let you save big on top-rated devices.
 
 🔗 **[Get The Latest Wybot Coupon Codes for US](https://www.dealsvalid.com/brands/wybot?utm_source=github&utm_medium=readme&utm_campaign=official)**
 
